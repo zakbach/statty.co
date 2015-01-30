@@ -1,0 +1,1 @@
+# statty.co
